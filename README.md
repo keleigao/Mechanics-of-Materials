@@ -1,0 +1,1 @@
+Hello,here are some notes written by a student from Xi'an Jiaotong University.Most of them may be fitter to those who are interested in mechanics.At the same time,I will try my best to accelerate update speed.Of course,if there are any issues,please contact me in time.Looking forward to your attention.
